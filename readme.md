@@ -1,1 +1,1 @@
-Click on this ----- > [Site](https://wintrsatoru.github.io/anoop/) 
+Fun site for Anoop.
